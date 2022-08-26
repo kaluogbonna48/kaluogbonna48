@@ -1,6 +1,6 @@
 ### **Kalu Ogbonna**
 #### *I AM A SOFTWARE ENGINEER*
-![*I AM A SOFTWARE ENGINEER*](https://raw.githubusercontent.com/kaluogbonna48/kaluogbonna48/main/iStock-1313617131.jpg)
+![*I AM A SOFTWARE ENGINEER*](https://raw.githubusercontent.com/kaluogbonna48/kaluogbonna48/main/1313617131.jpg)
 
 Organized and dependable candidate, successful at managing multiple priorities with a positiveaƫtude. Willingness to take on added responsibilities to meet team goals.
 
