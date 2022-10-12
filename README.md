@@ -1,6 +1,6 @@
 ### **Kalu Ogbonna**
 #### *I AM A SOFTWARE ENGINEER*
-![*I AM A SOFTWARE ENGINEER*](https://raw.githubusercontent.com/kaluogbonna48/kaluogbonna48/main/Screenshot 2022-10-12 at 08-38-46 Copy of youtube banner by belkacem designer.png)
+![*I AM A SOFTWARE ENGINEER*](https://raw.githubusercontent.com/kaluogbonna48/kaluogbonna48/main/social_wallpaper.png)
 
 Organized and dependable candidate, successful at managing multiple priorities with a positiveaƫtude. Willingness to take on added responsibilities to meet team goals.
 
