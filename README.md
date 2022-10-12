@@ -1,8 +1,6 @@
-### **Kalu Ogbonna**
-#### *I AM A SOFTWARE ENGINEER*
-![*I AM A SOFTWARE ENGINEER*](https://raw.githubusercontent.com/kaluogbonna48/kaluogbonna48/main/social_wallpaper.png)
+(https://raw.githubusercontent.com/kaluogbonna48/kaluogbonna48/main/social_wallpaper.png)
 
-Organized and dependable candidate, successful at managing multiple priorities with a positiveaƫtude. Willingness to take on added responsibilities to meet team goals.
+Open-minded software engineer.
 
 Skills: C++/JS / HTML / CSS
 
